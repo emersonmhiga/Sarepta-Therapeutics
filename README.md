@@ -1,6 +1,10 @@
 # Sarepta-Therapeutics
 Biotech equity analysis of Sarepta Therapeutics ($SRPT)
+
+
 Sarepta Therapeutics: The Hidden Hero of Healthcare 
+
+
 Emerson Higa 
 
 July 2025 
